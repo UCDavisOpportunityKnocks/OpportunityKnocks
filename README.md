@@ -1,1 +1,1 @@
-Dawg, if you're reading this, then by the time I finish this app, you think I'm Dora the way my bag talkin'. Sheeeeesh
+Dawg, if you're reading this, then by the time we finish this app, you think we're Dora the way my bag talkin'. Sheeeeesh
